@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **samandeepbishnoi@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1VrFLPfDj8fQQvl3UgKpM2zWbijhL5Q5F/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1RPxZzgftfh7RyYXY9HcSt_m39TbnE9m2/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
