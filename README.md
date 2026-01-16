@@ -8,7 +8,7 @@
   
 📫 **Email:** [samandeepbishnoi@gmail.com](mailto:samandeepbishnoi@gmail.com)  
 <br/>
-📄 **Resume:** [View Here](https://drive.google.com/file/d/1dV5Bp70O2aCdv_kS9uxROZLS1sGjF3zK/view?usp=drive_link)  
+📄 **Resume:** [View Here](https://drive.google.com/file/d/1BaTwxBmbvYJ1ayzWKuXiyn_RZaJzF-jz/view?usp=drive_link)  
 <br/>
 🌐 **Portfolio:** [https://samandeep-portfolio.vercel.app/](https://samandeep-portfolio.vercel.app/)
 
